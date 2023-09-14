@@ -1,1 +1,2 @@
 # informatyka
+Martyna Budzicz
